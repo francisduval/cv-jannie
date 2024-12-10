@@ -1,0 +1,1 @@
+CV ici: (https://francisduval.github.io/cv-jannie/)[https://francisduval.github.io/cv-jannie/]
